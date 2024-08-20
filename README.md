@@ -2,7 +2,8 @@
 **•** *I have been developing RestFul APIs as a Self Taughter Developer for 2 years.*
 
 # 📞 Contact
-**•** Mail: *yigitkabak@proton.me*
+**•** Mail: *yigitkabak05@hotmail.com*
+<br>
 **•** Discord: *yigit.dev*
 
 # 💰 donation 
